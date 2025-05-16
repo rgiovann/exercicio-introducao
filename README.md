@@ -1,4 +1,1 @@
-# exercicio-introducao
-
-
-ADICIONE A SUA HISTORIA ENGRAÇADA NESTE ARQUIVO
+Certo dia, na infância, fui com a família para o Encano, que é um lugar de Gaspar no meio do mato com vários rios e cachoeiras, nesse dia meu irmão perguntou se eu queria ver o peixinho que ele tinha pegado, eu bobo cheguei perto para olhar o peixe na mão dele e como um "splash" ele molhou meu rosto inteiro com água! No momento fiquei injuriado, hoje eu acho engraçado.
